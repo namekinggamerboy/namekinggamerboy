@@ -10,3 +10,6 @@ About info:
 *🤗 Best work all Time*
 
 ``` QUESTIONS U JUST DM ME ⏺️NAME BOY⏺️#2751 ```
+
+
+![Discord](https://discord.c99.nl/widget/theme-3/642518159013969920.png)
