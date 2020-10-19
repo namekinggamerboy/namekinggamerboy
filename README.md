@@ -12,4 +12,4 @@ About info:
 ``` QUESTIONS U JUST DM ME ⏺️NAME BOY⏺️#2751 ```
 
 
-![Discord](https://discord.c99.nl/widget/theme-4/616914990729003008.png)
+![Discord](https://discord.c99.nl/widget/theme-3/596521432507219980.png)
