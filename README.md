@@ -13,3 +13,13 @@ About info:
 
 
 ![Discord](https://discord.c99.nl/widget/theme-3/596521432507219980.png)
+
+
+NAME BOY WORKING PROJECTS
+
+[ME ROYAL](https://meroyalbot.xyz)
+[Uplife-api & docs](https://uplife-api.cf)
+
+Coming soon..
+[ME ROYAL INVITER](https://inviter.meroyal.xyz)
+[FUTURE BOT LIST] (https://future-bot-list.herokuapp.com)
